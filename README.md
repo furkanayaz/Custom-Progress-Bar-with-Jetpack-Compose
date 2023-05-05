@@ -1,1 +1,1 @@
-Animation Video: https://youtube.com/shorts/CwSl7j_RQek
+Animation Video: https://youtu.be/CwSl7j_RQek
